@@ -1,5 +1,5 @@
 # Kripal-singh
-my nane is kripal singh 
+my nane is kripal singh Inda
 <br>
 I am from jodhpur 
 <br>
